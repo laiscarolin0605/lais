@@ -2,8 +2,11 @@
 
 oiii,eu sou a lais.
 Estudo no cap-uem,1 ano do ensino medio.
-Moro EM MARINGA-PR.
+Moro em Maringa
 
-Eu amo viajar,conhecer praias diferentes.
+Meu lugar preferido para se divertir e passar um tempo com a familia,é Porto Rico.
 
-![](https://image.cnbcfm.com/api/v1/image/107263233-1687876594567-gettyimages-624711274-000109846419_Unapproved.jpg?v=1689076501&w=929&h=523&vtcrop=y)
+![WhatsApp Image 2023-10-03 at 12 27 16](https://github.com/laiscarolin0605/lais/assets/146108756/39c88dbd-f0b4-4078-8ba5-70c104da4ef9)
+
+
+
